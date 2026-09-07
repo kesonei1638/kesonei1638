@@ -7,7 +7,7 @@ $${\color{3b0612}「} {\color{6b0a14}Call} {\color{b71717}me} {\color{ff0000}Kes
 $${\color{3b0612}If} {\color{6b0a14}I'm} {\color{b71717}hanging} {\color{ff0000}out \space with \space friends \space and} {\color{b71717}sleeping,} {\color{6b0a14}I'm} {\color{3b0612}offtab.}$$
 $${\color{3b0612}I} {\color{6b0a14}won't} {\color{b71717}bite,} {\color{ff0000}so \space don't \space be} {\color{b71717}afraid} {\color{6b0a14}!!} {\color{3b0612}」}$$
 
-$${\color{3b0612}I} {\color{6b0a14}love} {\color{b71717}my} {\color{ff0000}two} {\color{ff0000}wife's!} {\color{b71717}@arneym} {\color{6b0a14}and} {\color{3b0612}@Itz_Shurry}$$
+$${\color{3b0612}I} {\color{6b0a14}love} {\color{b71717}my} {\color{ff0000}two} {\color{ff0000}wife's!} {\color{b71717}@arneym} {\color{6b0a14}and} {\color{3b0612}@ItzShurry}$$
 
 <img width="1045" height="450" alt="изображение" src="https://github.com/user-attachments/assets/0fa87420-ce66-4afe-994c-0204a49eb8e4" />
 
