@@ -3,7 +3,7 @@
 <img align="right" width="400" height="200" alt="изображение" src=https://github.com/user-attachments/assets/ed0dcbbf-72b6-42ca-ad54-2c9035326f6e />
 
 
-$${\color{3b0612}「} {\color{6b0a14}Call} {\color{b71717}me} {\color{ff0000}Keso \space !! \space 16} {\color{b71717}y.o;} {\color{6b0a14}ANY} {\color{3b0612}prns.}$$
+$${\color{3b0612}「} {\color{6b0a14}Call} {\color{b71717}me} {\color{ff0000}Keso \space !! \space 19} {\color{b71717}y.o;} {\color{6b0a14}ANY} {\color{3b0612}prns.}$$
 $${\color{3b0612}If} {\color{6b0a14}I'm} {\color{b71717}hanging} {\color{ff0000}out \space with \space friends \space and} {\color{b71717}sleeping,} {\color{6b0a14}I'm} {\color{3b0612}offtab.}$$
 $${\color{3b0612}I} {\color{6b0a14}won't} {\color{b71717}bite,} {\color{ff0000}so \space don't \space be} {\color{b71717}afraid} {\color{6b0a14}!!} {\color{3b0612}」}$$
 
