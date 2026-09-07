@@ -1,6 +1,7 @@
 <img width="1013" height="168" alt="изображение" src="https://github.com/user-attachments/assets/d4cb1fd3-1e0e-4cd7-a5c7-116f87e422a2" />
 
-<img align="left" width="373" height="177" alt="изображение" src="https://github.com/user-attachments/assets/e5330aaa-c655-42a3-a860-62a28d635547" />
+<img align="right" width="400" height="200" alt="изображение" src=https://github.com/user-attachments/assets/ed0dcbbf-72b6-42ca-ad54-2c9035326f6e />
+
 
 $${\color{3b0612}「} {\color{6b0a14}Call} {\color{b71717}me} {\color{ff0000}Keso \space !! \space 16} {\color{b71717}y.o;} {\color{6b0a14}ANY} {\color{3b0612}prns.}$$
 $${\color{3b0612}If} {\color{6b0a14}I'm} {\color{b71717}hanging} {\color{ff0000}out \space with \space friends \space and} {\color{b71717}sleeping,} {\color{6b0a14}I'm} {\color{3b0612}offtab.}$$
